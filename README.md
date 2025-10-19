@@ -1,5 +1,7 @@
-# About me 👋
-
-
+I   
+am  
+a  
+hopeless  
+goose.
 
 
